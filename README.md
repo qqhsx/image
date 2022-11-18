@@ -37,7 +37,8 @@ X2022（迅雷）链接：https://pan.xunlei.com/s/VNGMurp5xtz0bDBE4VCs-XISA1# �
 良医美剧第4季（百度云盘），链接：https://pan.baidu.com/s/1UzC5TlCIc6aXhPJWPNxBaw，提取码：i12b
 良医5（百度云盘），链接：https://pan.baidu.com/s/1EGPJ7fZdHZo7jNZUWhL-YQ?pwd=wzoj，提取码：wzoj
 良医 第6季，链接：https://pan.baidu.com/s/1G6iShR9JetQyB88VOM4vjw?pwd=8888，提取码：8888
-黑豹2 Black Panther: Wakanda Forever，链接：https://pan.baidu.com/s/1ytZXuhzbLAv7MMUBpbLmXA?pwd=8888，提取码：8888
+黑豹1（迅雷）链接：https://pan.xunlei.com/s/VNGqzDpOuROk0Sb-ct1U0NpzA1# 提取码：jzm7
+黑豹2 Black Panther: Wakanda Forever，链接：https://pan.baidu.com/s/19P7CMuuJcesh2zvZZ21ecw?pwd=8888，提取码：8888
 我的天使2016（迅雷网盘），链接：https://pan.xunlei.com/s/VMapj5fLNfguYAqBtEG5vvqUA1，提取码：cq2n
 我的天使2016（迅雷网盘），链接：https://pan.xunlei.com/s/VMapj5fLNfguYAqBtEG5vvqUA1，提取码：cq2n
 尸囚狱前篇（迅雷网盘），链接：https://pan.xunlei.com/s/VMe-E41aSmNhKzJ6VaqpltvMA1，提取码：m8kz
@@ -46,3 +47,5 @@ X2022（迅雷）链接：https://pan.xunlei.com/s/VNGMurp5xtz0bDBE4VCs-XISA1# �
 关于爱链接:https://pan.baidu.com/s/1Qq2IlKVDUpm_9a0uOCnKkg提取码:niku
 秘密账号 (2020) BD日语中字，链接：https://pan.xunlei.com/s/VNC7jWNsm0IjxvxJMkMghoOZA1?pass_code=j88t，提取码：j88t
 忠贞2022（百度云盘），链接：https://pan.baidu.com/s/1VHrIZ9DQgo0jG1PP3xyyhw?pwd=btrg，提取码：btrg
+海盗 해적 : 바다로 간 산적 (2014)，链接：https://pan.baidu.com/s/1SdqnDr2_DzNx4gw2RoZS4w?pwd=8888，提取码：8888
+海盗2：鬼怪的旗帜 해적: 도깨비 깃발，链接：https://pan.baidu.com/s/13XlOEy_lkLCOvbTF440u1A?pwd=8888，提取码：8888
