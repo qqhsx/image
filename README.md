@@ -1,6 +1,6 @@
 火口的两人（迅雷网盘），链接：https://pan.xunlei.com/s/VNG_q0fqWw9t5RZBkK-_ALaqA1#，提取码：zepa
 西部世界 Westworld，https://pan.baidu.com/s/1pZHwkeDt9OB5RxpWQeSqGA?pwd=8888，提取码：8888 
-西部世界4（百度云盘），链接：https://pan.baidu.com/s/1utymaRdtrzGHtOky9rAo2w?pwd=vby0，提取码：vby0
+西部世界1-4（迅雷）链接：https://pan.xunlei.com/s/VNH8k72Ma2WLeq2hBXYAbYBHA1# 提取码：5dz4
 无辜者2021链接：https://pan.baidu.com/s/1kPexa79cyWMo5pUOnkyM0w?pwd=q8st 提取码：q8st
 地狱血脉Hellbender链接：https://pan.xunlei.com/s/VMxJKOgTJXajWojg8C-lacOtA1提取码：ernj
 X2022（迅雷）链接：https://pan.xunlei.com/s/VNGMurp5xtz0bDBE4VCs-XISA1# 提取码：r3ga
