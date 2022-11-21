@@ -38,14 +38,37 @@ X2022（迅雷）链接：https://pan.xunlei.com/s/VNGMurp5xtz0bDBE4VCs-XISA1# �
 良医5（百度云盘），链接：https://pan.baidu.com/s/1EGPJ7fZdHZo7jNZUWhL-YQ?pwd=wzoj，提取码：wzoj
 良医 第6季，链接：https://pan.baidu.com/s/1G6iShR9JetQyB88VOM4vjw?pwd=8888，提取码：8888
 黑豹1（迅雷）链接：https://pan.xunlei.com/s/VNGqzDpOuROk0Sb-ct1U0NpzA1# 提取码：jzm7
-黑豹2 Black Panther: Wakanda Forever，链接：https://pan.baidu.com/s/19P7CMuuJcesh2zvZZ21ecw?pwd=8888，提取码：8888
+黑豹2 Black Panther: Wakanda Forever，链接：https://pan.baidu.com/s/1fgw8aTWBC3ie28DQsARfuA?pwd=8888，提取码：8888
 我的天使2016（迅雷网盘），链接：https://pan.xunlei.com/s/VMapj5fLNfguYAqBtEG5vvqUA1，提取码：cq2n
 我的天使2016（迅雷网盘），链接：https://pan.xunlei.com/s/VMapj5fLNfguYAqBtEG5vvqUA1，提取码：cq2n
 尸囚狱前篇（迅雷网盘），链接：https://pan.xunlei.com/s/VMe-E41aSmNhKzJ6VaqpltvMA1，提取码：m8kz
 盲山2007迅雷云盘 提取码：45sg链接：https://pan.xunlei.com/s/VNCxL-NlDz_se0ohHlwuUOu5A1
 珍品，链接：https://pan.baidu.com/s/1izj7FJiVM3ZkWfQYDWCcKw，提取码：znnk
 关于爱链接:https://pan.baidu.com/s/1Qq2IlKVDUpm_9a0uOCnKkg提取码:niku
+关于爱/烈爱交易（迅雷网盘），链接：https://pan.xunlei.com/s/VN8ke8BPNwxmissfQIL860CYA1，提取码：bugv
 秘密账号 (2020) BD日语中字，链接：https://pan.xunlei.com/s/VNC7jWNsm0IjxvxJMkMghoOZA1?pass_code=j88t，提取码：j88t
 忠贞2022（百度云盘），链接：https://pan.baidu.com/s/1VHrIZ9DQgo0jG1PP3xyyhw?pwd=btrg，提取码：btrg
+五十度黑，链接：https://pan.xunlei.com/s/VNC7gnI_YAfsYAmIVwjiiJrzA1，提取码：无
+奸臣（迅雷）链接：https://pan.xunlei.com/s/VMn48RBCTCeXT3jg608czmpbA1 提取码：5kc7
+爱神 Eros，链接：https://pan.xunlei.com/s/VNC6HCnCBweK2OHcFgrHwDGYA1?pass_code=cqgr，提取码：cqgr
+黑帮大佬和我的365日（迅雷）链接：https://pan.xunlei.com/s/VNGqrtF9-vXrW1i7D4At1WILA1# 提取码：tdis
+一树梨花压海棠/洛丽塔链接：https://pan.xunlei.com/s/VN7ueNSSjpPrd8fwklfcIAkRA1?pwd=amhb# 提取码：amhb
+人间中毒（迅雷）链接：https://pan.xunlei.com/s/VNGqw_kk-vXrW1i7D4At2k29A1# 提取码：aty9
+女性瘾者1-2（迅雷）链接：https://pan.xunlei.com/s/VNGqrIpAg2pPRHX6ZZmzacNdA1# 提取码：r5yn
+钥匙孔的爱/苦月亮（迅雷）链接：https://pan.xunlei.com/s/VNGr19WDg2pPRHX6ZZmzdVCFA1# 提取码：2kqs
+戏梦巴黎（迅雷）链接：https://pan.xunlei.com/s/VM_T8cZiRx7agct15WzW8ehAA1 提取码：x8m4
+一树梨花压海棠/洛丽塔链（迅雷）链接：https://pan.xunlei.com/s/VN9KQDRI8VzojS7guNc-jfRrA1 提取码：bx52
+情人1992（迅雷）链接：https://pan.xunlei.com/s/VN9HiVSGDNK_gGxLxcz9fzBKA1 提取码：tx9q
+祝你好运，里奥·格兰德（迅雷）链接：https://pan.xunlei.com/s/VNB0NWpBK_2DbV4pX_-L6cMcA1 提取码：7fbx
+小姐链接：https://pan.xunlei.com/s/VMZQrPussOC2qUUlAmVqioScA1提取码：ka2v
 海盗 해적 : 바다로 간 산적 (2014)，链接：https://pan.baidu.com/s/1SdqnDr2_DzNx4gw2RoZS4w?pwd=8888，提取码：8888
 海盗2：鬼怪的旗帜 해적: 도깨비 깃발，链接：https://pan.baidu.com/s/13XlOEy_lkLCOvbTF440u1A?pwd=8888，提取码：8888
+伯德小姐 Lady Bird，链接：https://pan.xunlei.com/s/VNC6DQwL7aH4gUS_nUYIW0bXA1?pass_code=ib9s，提取码：ib9s
+双面玛莎 Martha Marcy May Marlene，链接：https://pan.baidu.com/s/1a4nZ-rISbt80h5EhftS3ng?pwd=8888，提取码：8888
+误杀1链接：https://pan.xunlei.com/s/VMfHeIT_j0pCB3E1-oK3-HOZA1提取码：3raf
+误杀2链接：https://pan.xunlei.com/s/VMusRhDkyzc4ONuK0BZaH05NA1提取码：z54e
+倒霉性爱，发狂黄片 (2021) HD中英双字，链接：https://pan.xunlei.com/s/VNC7lPNx--DiqUWdz_zg3jdKA1?pass_code=v4k3，提取码：v4k3
+花容月貌，链接：https://pan.xunlei.com/s/VNC6FjuaNBuEl96JdwJSFAaMA1，提取码：无
+登堂入室（迅雷）链接：https://pan.xunlei.com/s/VN8LTrVVGirbxpnyo3Ptr20UA1 提取码：wbgt
+花容月貌（迅雷网盘），链接：https://pan.xunlei.com/s/VM_-7K6V98lJR-gASaZUq1-oA1，提取码：9uba
+新女友（迅雷网盘），链接：https://pan.xunlei.com/s/VMxHlUKsVxjzA0nbwrDHgiDrA1，提取码：6znh
