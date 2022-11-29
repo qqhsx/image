@@ -38,7 +38,7 @@ X2022（迅雷）链接：https://pan.xunlei.com/s/VNGMurp5xtz0bDBE4VCs-XISA1# �
 良医5（百度云盘），链接：https://pan.baidu.com/s/1EGPJ7fZdHZo7jNZUWhL-YQ?pwd=wzoj，提取码：wzoj
 良医 第6季，链接：https://pan.baidu.com/s/1G6iShR9JetQyB88VOM4vjw?pwd=8888，提取码：8888
 黑豹1（迅雷）链接：https://pan.xunlei.com/s/VNGqzDpOuROk0Sb-ct1U0NpzA1# 提取码：jzm7
-黑豹2 Black Panther: Wakanda Forever，链接：https://pan.baidu.com/s/1fgw8aTWBC3ie28DQsARfuA?pwd=8888，提取码：8888
+黑豹2 Black Panther: Wakanda Forever，链接：https://pan.baidu.com/s/1a-6A2wzDY7VMEAr2zSlXbw?pwd=8888，提取码：8888
 我的天使2016（迅雷网盘），链接：https://pan.xunlei.com/s/VMapj5fLNfguYAqBtEG5vvqUA1，提取码：cq2n
 我的天使2016（迅雷网盘），链接：https://pan.xunlei.com/s/VMapj5fLNfguYAqBtEG5vvqUA1，提取码：cq2n
 尸囚狱前篇（迅雷网盘），链接：https://pan.xunlei.com/s/VMe-E41aSmNhKzJ6VaqpltvMA1，提取码：m8kz
